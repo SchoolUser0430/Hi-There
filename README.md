@@ -1,2 +1,5 @@
 # Hi-There
-About Me
+Its me styuding computer engeenering, aand this is a teste drive 
+🎂🐱‍👤
+
+stututtutuu
